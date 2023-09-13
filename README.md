@@ -1,5 +1,19 @@
 # Hello, teacher!
 
+
+I STUDY in Netology
+
+I like typing commands on the keyboard
+
+continiue
+
+pause
+
+start
+13.09.2023
+
+
+
 Мы на столько крутые, что уже успели поработать со следующими компаниями:
 
 ООО «Рога и копыта»
